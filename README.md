@@ -1,4 +1,4 @@
-# ssantamariah
+# Sarah :)
 Hola! Soy **Sarah Santamaria** tengo 23 años, estudio comunicación visual en CENTRO.
 Me gusta mucho el diseño editorial y también experimentar con colores. 
 
